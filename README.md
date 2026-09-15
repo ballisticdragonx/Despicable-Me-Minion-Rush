@@ -224,4 +224,4 @@ Despicable Me: Minion Rush is available as a full free version with all features
 Embark on a delightful adventure with Despicable Me: Minion Rush! Download now and join the fun with your favorite Minions.
 
 ---
-**Last updated:** 2026-09-14 23:41:16 UTC
+**Last updated:** 2026-09-15 03:27:23 UTC
